@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @SauluteS
+- 👀 I’m interested in learning as many languages as possible, both inside and outside of coding
+- 🌱 I’m currently learning C and Python
+- 💞️ I’m looking to collaborate on anything
+- 📫 How to reach me C23405722@mytudublin.ie
+- 😄 Pronouns: any :)
+- ⚡ Fun fact: 
